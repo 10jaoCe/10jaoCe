@@ -13,6 +13,6 @@ joao.celso.lima@escola.pr.gov.br
 10jaoCe
 
 ![](https://tenor.com/pt-BR/view/super-bomberman-nintendo-switch-white-gif-8015163)
-- 😄 Pronouns: ele
+- 😄 Pronouns: ele/dele
 
 
