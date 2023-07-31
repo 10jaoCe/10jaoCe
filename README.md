@@ -15,4 +15,4 @@ joao.celso.lima@escola.pr.gov.br
 ![](https://tenor.com/pt-BR/view/super-bomberman-nintendo-switch-white-gif-8015163)
 - 😄 Pronouns: ele/dele
 
-
+![](https://img.shields.io/badge/Bitcoin-000000?style=for-the-badge&logo=bitcoin&logoColor=white)
